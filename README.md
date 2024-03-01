@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technology and Innovation
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on Tech Projects
-- 📫 How to reach me https://www.linkedin.com/in/jahnavi-bhatt-453a041ba/ 
+- 📫 How to reach me https://www.linkedin.com/in/jahnavi-bhatt-453a041ba/
 - 😄 Pronouns: She/Her
 
 
